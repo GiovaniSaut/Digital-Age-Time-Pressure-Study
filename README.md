@@ -53,4 +53,4 @@ This has direct relevance for **workplace wellbeing** (productivity tool rollout
 
 ---
 
-📧 giovani.saut@gmail.com · 💼 [LinkedIn](https://linkedin.com/in/giovanisaut) · 🗂️ [Portfolio](https://github.com/GiovaniSaut)
+📧 giovani.saut@gmail.com · 💼 [LinkedIn](https://www.linkedin.com/in/giovani-saut) · 🗂️ [Portfolio](https://github.com/GiovaniSaut)
